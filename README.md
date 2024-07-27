@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on wipro, infosys
 - 📫 How to reach me throungh sumityaadav777@gmail.com
 - 😄 Pronouns: As you like to call.
-- ⚡ Fun fact: money doesn't by happiness.
+- ⚡ Fun fact: money doesn't buy happiness.
 
 <!---
 sumityadav88/sumityadav88 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
